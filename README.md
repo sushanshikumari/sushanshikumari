@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **sushanshikumari@gmail.com**
 
-- 📄 My Resume [https://www.overleaf.com/project/65c9cbe62914672bc281e946](https://www.overleaf.com/project/65c9cbe62914672bc281e946)
+- 📄 My Resume [https://drive.google.com/file/d/1hAmIxGsGDKaiX1u6VApaVGSZNdUnnR6l/view?usp=sharing](https://drive.google.com/file/d/1hAmIxGsGDKaiX1u6VApaVGSZNdUnnR6l/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
